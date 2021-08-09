@@ -1,0 +1,1 @@
+"I will be classical and professional duties in the world tech"
