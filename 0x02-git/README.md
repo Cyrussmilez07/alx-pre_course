@@ -1,1 +1,1 @@
-"I will be classical and professional duties in the world tech"
+"My name is Effiong Cyril imoh and I am so happy to be an ALX Student"
